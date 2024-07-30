@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn more
 - 🌱 I’m currently learning alura
 - 💞️ I’m looking to collaborate on make friends
-- 📫 How to reach me do not enter
+- 📫 How to reach me: you won't find
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i love pistachio ice cream
 
